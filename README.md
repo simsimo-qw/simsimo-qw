@@ -5,7 +5,7 @@
 - 📫 How to reach me: send me an email on my email
 - 😄 Pronouns: me and myself 
 - ⚡ Fun fact: no one.
-
+AS DAYS GO BY I WANNA DIEEEEEEEEE
 <!---
 simsimo-qw/simsimo-qw is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
